@@ -1,2 +1,4 @@
-# Purpose_Of_Human_On_Earth
-Purpose_Of_Human_On_Earth Sakinder See It
+# Purpose Of_Human_On_Earth
+
+(The Qur'an,57:20)
+
